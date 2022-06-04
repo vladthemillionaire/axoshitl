@@ -1,7 +1,7 @@
 # Axoshitl leak by The Millionaires
 
 Axolotl Client
-Personally one of the shittiest clients ever to be cucked bythe Millionaire's, with bypasses worse than Liquidbounce.
+Personally one of the shittiest clients ever to be cucked by the Millionaire's, with bypasses worse than Liquidbounce.
 Developer list: Jxy [Yinuwu] & K1 [K1le]
 
 Millionaire Exclusive ©
